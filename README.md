@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Toxicturtle
-- 👀 I’m interested in programming, IT technology and ethical hacking development. ..
+- 👀 I’m interested in programming, IT technology , ethical hacking & machine learning.
 - 🌱 I’m currently learning how to read programming languages and how to use everything in the write way.
-- 💞️ I’m looking to collaborate on projects that are connecting music and programming /hacking. .
+- 💞️ I’m looking to collaborate on projects that are especially using creating of music to programm or hack.
 - 📫 How to reach me Danielarohr@petalmail.com ..
 
 <!---
