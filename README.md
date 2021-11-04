@@ -8,3 +8,10 @@
 Toxicturtle/Toxicturtle is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+About me:
+Dani (She/hers) 
+Open minded. Empath. Lucid dreamer.
+ Space traveler. Gymlover. Student. 
+❤️ And completely unknown of all this here.
+Please be gentle and Have mery❤️🙏
+Grizzly bear hug and take care. 
