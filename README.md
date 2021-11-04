@@ -9,9 +9,7 @@ Toxicturtle/Toxicturtle is a ✨ special ✨ repository because its `README.md` 
 You can click the Preview link to take a look at your changes.
 --->
 About me:
-Dani (She/hers) 
-Open minded. Empath. Lucid dreamer.
- Space traveler. Gymlover. Student. 
-❤️ And completely unknown of all this here.
-Please be gentle and Have mery❤️🙏
-Grizzly bear hug and take care. 
+
+❤️ I am completely new to the topic and hopefully will learn fast.
+Please be gentle with me and Have some mery❤️🙏
+Grizzly bear hug and love to all .
